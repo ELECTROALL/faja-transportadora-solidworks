@@ -1,1 +1,0 @@
-# faja-transportadora-solidworks
